@@ -1,4 +1,4 @@
-### Hi there 👋
+### Not sure what to put here, I like computers n stuff
 
 <!--
 **Polyphony24/Polyphony24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
